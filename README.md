@@ -7,7 +7,7 @@
 <strong>Check crunchyrool accounts with an excellent CPM, Works with free proxies</strong>
 <br><br>
 </strong>
-[!](Crunchyrool.PNG)
+[!](https://github.com/Pok3yv2/Crunchyrool-Checker-v2/blob/main/Crunchyrool.PNG)
 
 -----
 
